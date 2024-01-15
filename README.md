@@ -1,0 +1,2 @@
+# Connecting_Cultures-_Vilago_Kraft---Bringing_States_Together_with_Special_Commerce
+Vilago Kraft aligns with the Uttar Pradesh ODOP model, bridging districts in Jharkhand, Odisha, and Uttar Pradesh. The platform streamlines the transactional flow, allowing users and sellers to effortlessly register, enhancing accessibility and participation in the dynamic marketplace for unique traditional and crafted products
